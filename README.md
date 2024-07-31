@@ -11,3 +11,6 @@ prazer meu nome é joão victor.
 ### VOCÊ ENTRA EM CONTATO COMIGO 📬 
 
 00001231849769sp@al.educaco.sp.gov.br
+
+![]()
+https://tenor.com/pt-BR/view/minions-gif-24381467
